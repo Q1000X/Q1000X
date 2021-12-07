@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Q1000X
 - 👀 I’m interested in Football
 - 🌱 I’m currently learning programing
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on something new 
 - 📫 How to reach me fm.sentuerk@gmx.de
 
 <!---
